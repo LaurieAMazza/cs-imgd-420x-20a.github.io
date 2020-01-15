@@ -8,7 +8,7 @@
 [put your name here](http://put_your_link_here.org)  
 [put your name here](http://put_your_link_here.org)  
 [put your name here](http://put_your_link_here.org)  
-[put your name here](http://put_your_link_here.org)  
+[Laurie Mazza](https://laurieamazza.github.io/IMGD420X/)  
 [put your name here](http://put_your_link_here.org)  
 [put your name here](http://put_your_link_here.org)  
 [put your name here](http://put_your_link_here.org)  
